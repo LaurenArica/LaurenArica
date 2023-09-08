@@ -1,5 +1,5 @@
 # 💫 Hello I'm Lauren Arica 👋
-I am currently in the ninth cycle of the systems engineering degree 💻 and I like to learn new technologies.
+I am currently in the tenth cycle of the systems engineering degree 💻 and I like to learn new technologies.
 <br>
 <br>
 I am currently working on my own projects ⚡
